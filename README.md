@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sdmonke
+- 👋 Hi, I’m @SDisSigma
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning nothing lol
 - 💞️ I’m looking to collaborate on cool stuff and video games
